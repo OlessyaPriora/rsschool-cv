@@ -7,7 +7,7 @@
 * GitHub name: OlessyaPriora
 * Email adress: Olessya_29_03_91@mail.ru 
 
------------
+------------
 
 
 ### About me
